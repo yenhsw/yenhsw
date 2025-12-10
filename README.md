@@ -1,4 +1,4 @@
-# 👋 About Me: HOÀNG SỸ YÊN
+# 👋 About Me: HOANG SY YEN
 
 ---
 
